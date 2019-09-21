@@ -1,1 +1,1 @@
-# internet-uzunokuni
+# internet-art
